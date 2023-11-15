@@ -1,1 +1,1 @@
-KPF School
+Kano Programmers Forum School
